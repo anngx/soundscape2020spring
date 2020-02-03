@@ -1,1 +1,1 @@
-For my soundscape narrative, I recreated a shooting scenario to shed light on the bleak reality of gun violence in America. 
+For my soundscape narrative, I recreated a mass shooting, abduction, and murder.  
