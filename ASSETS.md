@@ -39,3 +39,10 @@ About: Man screaming and dying in anguish
 Title: Scream And Die Fx
 Uploaded: 05.15.09 
 License: Personal Use Only 
+
+Car Door 
+About: The sound of a our car door closing. very crisp and clear sound. nice automotive sound effect, could be used for any shutting or closing sound.
+Title: Car Door Close
+Uploaded: 08.13.09 
+License: Attribution 3.0 
+Recorded by Mike Koenig 
