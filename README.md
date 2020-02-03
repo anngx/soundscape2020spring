@@ -1,1 +1,1 @@
-For this project, I think I might make a soundscape of people arguing and having an altercation in public. 
+For my soundscape narrative, I recreated a shooting scenario to shed light on the bleak reality of gun violence in America. 
