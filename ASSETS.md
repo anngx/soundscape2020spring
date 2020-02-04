@@ -46,3 +46,11 @@ Title: Car Door Close
 Uploaded: 08.13.09 
 License: Attribution 3.0 
 Recorded by Mike Koenig 
+
+Insourced Sounds: 
+
+Car Trunk Noises
+-> recorded from the inside of the trunk 
+
+Car Drive 
+-> recorded from the back seat of the vehicle 
