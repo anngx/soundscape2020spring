@@ -38,7 +38,12 @@ Man screaming
 About: Man screaming and dying in anguish
 Title: Scream And Die Fx
 Uploaded: 05.15.09 
-License: Personal Use Only 
+
+
+Human Gag Noise
+About: A human trying to breathe through a plastic bag.
+Title: NYLON BAG SUFFOCATING HUMAN
+Recorded by: Make This Noise in the UK
 
 Car Door 
 About: The sound of a our car door closing. very crisp and clear sound. nice automotive sound effect, could be used for any shutting or closing sound.
